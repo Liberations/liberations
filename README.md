@@ -4,7 +4,7 @@
 
 - 🔭 I’m currently working on flutter
 - 🌱 I’m currently learning python
-- 📫 How to reach me: 910689331@qq.com
+- 📫 How to reach me: 1487098940@qq.com
 - 😄 Pronouns: fuck baby
 - ⚡ Fun fact: 王者荣耀
 
